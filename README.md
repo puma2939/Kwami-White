@@ -1,2 +1,0 @@
-# Kwami-White
-Art
